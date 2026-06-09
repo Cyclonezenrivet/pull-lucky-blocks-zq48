@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with secret Scripts for pull lucky blocks, the #1 Script. Includes no cooldown and god mode for
 
 
 
